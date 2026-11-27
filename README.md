@@ -23,6 +23,16 @@ Shopify stores I have designed and built (100+ live stores across fashion, fitne
 - **Swishable** — https://getswishables.com — Clean branding, optimized PDPs & fast mobile UX
 - **More projects:** https://uzmashad.com · https://dubaitrends.online · https://zyvensa.com · https://erpla.store · https://tomiwatches.pk
 
+## eBay Results
+
+Seller Hub results from eBay accounts under my management — product research, listing SEO and day-to-day account management (Jul–Aug 2026):
+
+- **eBay.com (USD account):** $24,387.65 in sales in 31 days (▲ 42.8% vs prior period) · $58,942.10 in 90 days
+- **eBay UK (GBP account):** £17,694.35 in sales in 30 days (▲ 16.8% vs prior period) · £38,512.19 in 90 days
+- **Growing account:** 73 orders and $1,245.80 in sales in 90 days · 2,781 listing views
+
+Video highlights: [Reel 1](https://www.facebook.com/share/r/1E5DUg6pyT/) · [Reel 2](https://www.facebook.com/share/r/1Ch6uTmTef/)
+
 ## Markets I work with
 UK · UAE · USA · Pakistan · Europe
 
