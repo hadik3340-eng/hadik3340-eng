@@ -31,6 +31,10 @@ Seller Hub results from eBay accounts under my management — product research, 
 - **eBay UK (GBP account):** £17,694.35 in sales in 30 days (▲ 16.8% vs prior period) · £38,512.19 in 90 days
 - **Growing account:** 73 orders and $1,245.80 in sales in 90 days · 2,781 listing views
 
+[![eBay.com sales (USD)](results/ebay-usd.jpg)](results/ebay-usd.jpg)
+[![eBay UK sales (GBP)](results/ebay-uk.jpg)](results/ebay-uk.jpg)
+[![Orders and views (90 days)](results/ebay-orders.jpg)](results/ebay-orders.jpg)
+
 Video highlights: [Reel 1](https://www.facebook.com/share/r/1E5DUg6pyT/) · [Reel 2](https://www.facebook.com/share/r/1Ch6uTmTef/)
 
 ## Marketing Results
@@ -41,6 +45,11 @@ Meta Ads and e-commerce results from client campaigns under my management:
 - **Messaging campaign (UAE):** 211 conversations started at AED 1.48 per conversation · AED 312.93 spent
 - **Sales campaign (Apr–Jun):** 1,264 results at AED 2.98 cost per result
 - **Shopify store growth (7 days):** $25,239.36 in sales (▲ 475%) · 330 orders (▲ 450%) · 2.25% conversion rate (▲ 261%)
+
+[![Advion Gel campaign](results/marketing-advion.jpg)](results/marketing-advion.jpg)
+[![Messaging campaign](results/marketing-messaging.jpg)](results/marketing-messaging.jpg)
+[![Sales campaign](results/marketing-sales.jpg)](results/marketing-sales.jpg)
+[![Shopify sales (7 days)](results/marketing-shopify.jpg)](results/marketing-shopify.jpg)
 
 Video highlights: [Reel 3](https://www.facebook.com/share/r/1HtYvv9zev/) · [Reel 4](https://www.facebook.com/share/r/1FNWxmonDv/) · [Reel 5](https://www.facebook.com/share/r/18TTnnE1nZ/)
 
