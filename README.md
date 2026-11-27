@@ -33,6 +33,17 @@ Seller Hub results from eBay accounts under my management — product research, 
 
 Video highlights: [Reel 1](https://www.facebook.com/share/r/1E5DUg6pyT/) · [Reel 2](https://www.facebook.com/share/r/1Ch6uTmTef/)
 
+## Marketing Results
+
+Meta Ads and e-commerce results from client campaigns under my management:
+
+- **Advion Gel — Facebook messaging campaign (UAE):** 643 messaging conversations started at AED 3.04 per conversation · AED 1,956.64 spent
+- **Messaging campaign (UAE):** 211 conversations started at AED 1.48 per conversation · AED 312.93 spent
+- **Sales campaign (Apr–Jun):** 1,264 results at AED 2.98 cost per result
+- **Shopify store growth (7 days):** $25,239.36 in sales (▲ 475%) · 330 orders (▲ 450%) · 2.25% conversion rate (▲ 261%)
+
+Video highlights: [Reel 3](https://www.facebook.com/share/r/1HtYvv9zev/) · [Reel 4](https://www.facebook.com/share/r/1FNWxmonDv/) · [Reel 5](https://www.facebook.com/share/r/18TTnnE1nZ/)
+
 ## Markets I work with
 UK · UAE · USA · Pakistan · Europe
 
